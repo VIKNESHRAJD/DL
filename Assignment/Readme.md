@@ -1,0 +1,1 @@
+https://vikki10.neocities.org/DEEP%20LEARNING/VIKNESHRAJD-ASSIGNMENT1DL
